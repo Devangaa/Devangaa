@@ -6,6 +6,8 @@ My name is, seriously ? You still ask this ? Are you can't see my profile ? Next
 - [Python](https://en.wikipedia.org/wiki/Python_(programming_language)) 
 - [What do you expect more?](https://en.wikipedia.org/wiki/Nothing)
 
+I am a high school student trying to understand how to hack nasa with html to sell their secret data. Maybe that's too much. I dunno what else to say. Basically I just want to learn coding. But why am I writing this if no one will see it? stupid me!
+
 ## How to Study
 
 Bruh, have you never studied? I study like a normal person. Read websites, books, and wanna die because of the frustration of the [**fucking errors**](https://en.wikipedia.org/wiki/Error) that always appear, even though the coding is exactly **the same as the fucking tutorial**.
