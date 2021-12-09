@@ -10,6 +10,13 @@ My name is, seriously ? You still ask this ? Are you can't see my profile ? Next
 
 Bruh, have you never studied? I study like a normal person. Read websites, books, and wanna die because of the frustration of the [**fucking errors**](https://en.wikipedia.org/wiki/Error) that always appear, even though the coding is exactly **the same as the fucking tutorial**.
 
+
+![error](https://64.media.tumblr.com/4b3a54a3bed69107972a80f7c70a2aaf/tumblr_nsjoqd1xXV1ucdb23o1_540.gifv)
+
+## Achievements 
+
+Maybe nothing. I don't really care about my achievements, I only care about **my tea**☕.
+
 ## Social Media
 
 I think nobody want to see my social media, so i will leave [blank](https://www.youtube.com/watch?v=z4JJ270xx98) here.
