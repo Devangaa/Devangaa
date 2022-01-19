@@ -18,7 +18,7 @@ Sometimes, if i bored with the **fricking error**, I will make the best tea that
 
 ## Achievements 
 
-Nothing. I don't really care about my achievements, I only care about **my tea**☕.
+IDK, I don't really care about my achievements, I only care about **my tea**☕.
 
 ## Social Media
 
