@@ -10,16 +10,16 @@ I am a high school student trying to understand how to hack nasa with html to se
 
 ## How to Study
 
-Bruh, have you never studied? I study like a normal person. Read websites, books, and wanna die because of the frustration of the [**fucking errors**](https://en.wikipedia.org/wiki/Error) that always appear, even though the coding is exactly **the same as the fucking tutorial**.
+Bruh, have you never studied? I study like a normal person. Read websites, books, and wanna die because of the frustration of the fucking errors that always appear, even though the coding is exactly **the same as the fucking tutorial**.
 
 ![error](https://64.media.tumblr.com/4b3a54a3bed69107972a80f7c70a2aaf/tumblr_nsjoqd1xXV1ucdb23o1_540.gifv)
 
-Sometimes, if i bored with the **fricking error**, I will make the best tea that the British will want to drink it all day long. maybe some coffee in the evening.
+Sometimes, if i bored with the fricking error, I will make the best tea that the British will want to drink it all day long. maybe some coffee in the evening.
 
 ## Achievements 
 
-IDK, I don't really care about my achievements, I only care about **my tea**☕.
+IDK, I don't really care about my achievements, I only care about my tea☕.
 
 ## Social Media
 
-I think nobody want to see my social media, so i will leave [blank](https://www.youtube.com/watch?v=z4JJ270xx98) here.
+I think nobody want to see my social media, so i will leave [my social media](https://www.youtube.com/watch?v=z4JJ270xx98) here.
