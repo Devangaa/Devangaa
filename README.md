@@ -6,7 +6,7 @@ My name is, seriously ? You still ask this ? Are you can't see my profile ? Next
 - [Python](https://en.wikipedia.org/wiki/Python_(programming_language)) 
 - [What do you expect more?](https://en.wikipedia.org/wiki/Nothing)
 
-I am a high school student trying to understand how to hack nasa with html to sell their secret data. Maybe that's too much. I dunno what else to say. Basically I just want to learn coding. But why am I writing this if no one will see it? stupid me!
+I am a high school student trying to understand how to hack nasa with html to sell their secret data. Maybe that's too much. I dunno what else to say. Basically I just want to learn coding. But why am I writing this if no one will see it? Fuck me!
 
 ## How to Study
 
@@ -14,7 +14,7 @@ Bruh, have you never studied? I study like a normal person. Read websites, books
 
 ![error](https://64.media.tumblr.com/4b3a54a3bed69107972a80f7c70a2aaf/tumblr_nsjoqd1xXV1ucdb23o1_540.gifv)
 
-Sometimes, if i bored with the fricking error, I will make the best tea that the British will want to drink it all day long. maybe some coffee in the evening.
+Sometimes, if i bored with the fricking error, I will make the best tea that the British will want to drink it all day long.
 
 ## Achievements 
 
